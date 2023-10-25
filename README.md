@@ -1,5 +1,5 @@
 # futbotmanager
-Introductie van de < a href="https://futbotmanager.com" target="_blank">FC24 Autosniping en Autobuyer BOT</a>: Revolutioneer je game-ervaring!
+Introductie van de FC24 Autosniping en Autobuyer BOT (https://futbotmanager.com): Revolutioneer je game-ervaring!
 
 In het uitgestrekte universum van online gaming hebben maar weinig tools zoveel anticipatie en opwinding opgewekt als de FC24 Autosniping en Autobuyer BOT. Deze baanbrekende tool staat op het punt om te herdefiniëren hoe spelers interageren met de virtuele voetbalwereld, hen uitrustend met ongekende kracht en flexibiliteit.
 
